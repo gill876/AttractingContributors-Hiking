@@ -12,4 +12,4 @@ The anime I have watched are:
 10. Detective Conan
 
 And my favourite Anime is Natsume's Book of Friends. 
-what is your favourite Anime? :)
+what is your favourite Anime? : )
