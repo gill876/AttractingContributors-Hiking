@@ -1,4 +1,4 @@
-#I like watching Anime.
+# I like watching Anime.
 The anime I have watched are:
 1. Natsume's Book of Friends
 2. Kamisama Kiss
